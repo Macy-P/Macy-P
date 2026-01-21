@@ -7,4 +7,4 @@ Alongside Macy's design and marketing experience, she is actively building her t
 
 Outside of work and grad school, Macy loves to hang out with her fiance and her French bulldog. She has been known to be caught reading just about any book she can get her hands on. Feel free to check out her LinkedIn profile below.
 #####
-[Macy's LinkedIn] (https://www.linkedin.com/in/macy-pedersen-715ab1349/)
+[Macy's LinkedIn](https://www.linkedin.com/in/macy-pedersen-715ab1349/)
