@@ -1,7 +1,7 @@
 # Macy Pedersen
 ## *Strategic, Curious, Creative*
 #### 
-Macy Pedersen is a graphic designer with a strong passion for visual storytelling and thoughtful design. She earned my Bachelor of Arts with a minor in Advertising from Iowa State University in May 2023, where she developed a solid foundation in design principles, branding, and marketing strategy. With two years of experience in marketing, Macy brings a strategic mindset to her design process, blending creativity with purpose to help brands communicate clearly and effectively.
+Macy Pedersen is an aspiring graphic designer with a strong passion for visual storytelling and thoughtful design. She earned my Bachelor of Arts with a minor in Advertising from Iowa State University in May 2023, where she developed a solid foundation in design principles, branding, and marketing strategy. With two years of experience in marketing, Macy brings a strategic mindset to her design process, blending creativity with purpose to help brands communicate clearly and effectively.
 
 Alongside Macy's design and marketing experience, she is actively building her technical skill set with a growing understanding of coding and digital frameworks while studying to get her master's in Graphic Information Technology at Arizona State University. She's a fast learner with a strong curiosity for how technology shapes user experiences, branding, and digital storytelling. Macy is excited to continue blending design, marketing strategy, and emerging technologies to create innovative, adaptable solutions in an increasingly tech-driven world.
 
